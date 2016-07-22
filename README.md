@@ -1,0 +1,2 @@
+# Pragyan-International-university
+Pragyan International University has been established by Pragyan Foundation, a Not-For-Profit Institution based out of Kolkata. The Trustees of Pragyan Foundation (Sponsoring Body) have been actively engaged in the field of education since 1991 (over 25 years) and have brought their rich experience and expertise in the establishment of Pragyan International University, designing its programmes,  hiring the best faculties, offering the finest infrastructure and offering industry-oriented job ready and practical education.
